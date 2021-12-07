@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @FemboyJim
+- 👀 I’m interested in stealing your code
+- 🌱 I’m currently learning kali linux
+- 💞️ I’m looking to collaborate on destoying all doxbin kids
+- 📫 How to reach me Jim!#7452
